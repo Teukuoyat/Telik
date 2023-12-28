@@ -1,0 +1,2 @@
+# Telik
+Hidup harus berjuang
